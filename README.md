@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analytics
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on internship
-- 📫 How to reach me www.linkedin.com/in/olasubomi-lasaki-75607b69
+- 📫 How to reach me: www.linkedin.com/in/olasubomi-lasaki-75607b69
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm intro-extroverted
 
